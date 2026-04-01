@@ -118,7 +118,7 @@ I have led AI initiatives across organizations including Google DeepMind, Google
 ## 🤝 Connect
 
 * 💼 LinkedIn: https://www.linkedin.com/in/aminifra/
-* 📧 Email: [Cedric_Huang@outlook.com](mailto:Cedric_Huang@outlook.com)
+* 📧 Email: [Cedric_Huang_AI@outlook.com](mailto:Cedric_Huang_AI@outlook.com)
 
 ---
 
